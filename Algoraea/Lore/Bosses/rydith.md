@@ -1,0 +1,4 @@
+###Rydith, Legend Incarnate
+Son of Pyrell (P-EYE-Rell), The Transgressor, and Ryquia (Ru-EYE-qwee-UH) Mother of the Untold. Heir to the Fosla City and its inhabitants, he had stressors of which no one could know, but him and the family that bore him. Born during the time of The Great Uncertainty brought his home city together through the ancient belief that a full blooded First was to be born during this Shift. As much of Algoraea wanted to belief this was to be true after over hundred years of suffering and misforutune, all the towns people believed in this prophecy and raised the boy on a gold pedastal. 
+As much as Rydith wanted himself to be the first full-blooded First in over a millenia, he knew deep down that he held no specialities in his blood, he held no great knowledge of what was before his time and his people, he knew he was not the prophecy come alive. 
+Over the years he, more than the city-peoples, started to come to a realization that
